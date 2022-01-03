@@ -1,1 +1,1 @@
-https:///AlinaBelolibskaya.github.io/rsschool-cv/cv
+https://AlinaBelolibskaya.github.io/rsschool-cv/ 
